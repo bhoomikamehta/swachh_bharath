@@ -18,4 +18,4 @@
 
 :boom: :heart: :star: :tea:
 
-Pratyush is a piece of :poop:
+Pratyush has a piece of :heart:
